@@ -8,7 +8,7 @@ https://tronscan.org/transaction/ba40860a2781057a96436d6d87310a9a61872f62fb10fb2
 
 His Telegram is: @zeusbyte
 
-His partner in scams: @chessmate77
+His partner in scams: @chessmate77 and @TWFtYWggYWt1IHRha3V0IPCfpK
 
 # Contact me for more proofs
 
