@@ -1,4 +1,5 @@
-# The scammer Zeusbyte
+# The scammer Zeusbyte and his Goldsvet shit
+
 This repo is about the biggest scammer @zeusbyte.
 Please DO NOT DO ANY business with this scumbag.
 
